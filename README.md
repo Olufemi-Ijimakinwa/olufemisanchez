@@ -1,2 +1,0 @@
-# olufemisanchez
-Data Analyst
